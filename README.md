@@ -1,5 +1,7 @@
 							 Hello Peeps 👋 
-🔭 I’m currently working on at coporate banking in Myanmar.
+I am Aye Chan Myae aka winny. 
+
+🔭 I’m currently working on at one of the coporate banks in Myanmar.
 
 😄 Pronouns: winny
 <!--
