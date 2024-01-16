@@ -7,5 +7,4 @@ I am Aye Chan Myae aka winny.
 
 🌱 I’m currently learning C# ASP.Net
 
-⚡ 
 
